@@ -1,1 +1,1 @@
-cost calcualted page
+cost calculated page
